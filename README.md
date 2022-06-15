@@ -1,0 +1,1 @@
+# qlscrazy.github.io
